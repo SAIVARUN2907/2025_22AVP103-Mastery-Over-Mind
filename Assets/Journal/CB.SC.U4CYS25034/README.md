@@ -5,7 +5,8 @@
 # 22AVP103 - Mastery Over Mind
 
 
-## Journal Record1 .Date:20.08.2025
+## Journal Record1 
+Date:20.08.2025
 Scenario: It was the second week of my joining,in the college i was sick (suffering with fever and cold) .I am using the tablets which i bought from my home but i could n't recover,at night i was unable to sleep due to heavy cough .
 Gratitude to:My room mate Rohit
 He helped in that situation ,since i was unable to recover ,he taken me to hospital .He bought some fruits from store and helped me a lot as a brother . I will remember the care he showed on me ,and I will never forgot his help in my life time.
@@ -24,3 +25,4 @@ He is my friend who lives in chennai,he came to the railway station and he took 
 He helped in the tough situation , even he is not much close he took me to his house.
 
 I was very thankfull to the persons who helped and stayed with me in the tough conditions .
+
